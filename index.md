@@ -13,4 +13,4 @@
 #6、一个人为什么要努力？ 我见过最好的答案就是：因为我喜欢的东西都很贵，我想去的地方都很远，我爱的人超完美。
 
 
-# http://upvr.net/Material/video/f6f68dad9594e4ec562d9955979fb22c/77d5e309a6910ea02370f6507f59ab92.mp4
+#http://upvr.net/Material/video/f6f68dad9594e4ec562d9955979fb22c/77d5e309a6910ea02370f6507f59ab92.mp4
